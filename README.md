@@ -1,1 +1,0 @@
-# nathanthebad.github.io
